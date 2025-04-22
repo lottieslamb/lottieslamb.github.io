@@ -1,1 +1,0 @@
-# parascials.github.io
